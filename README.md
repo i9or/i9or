@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @i9or
+- 👀 That's
+- 🀄 Enough
+- 🌱 Social
+- 💞️ Interaction
+- 📫 for Today
